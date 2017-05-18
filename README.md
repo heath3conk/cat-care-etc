@@ -7,6 +7,9 @@
   - [Leaving them for more than a day](#leaving-them-for-more-than-a-day)
   
 [Supplies](#supplies)
+
+[Environmental Control](#environmental-control)
+
 [Other notes](#other-notes)
 
 Cats
@@ -44,6 +47,10 @@ Supplies
 - Vacuum cleaner is in the guest room. It's 'bagless,' which means that the canister fills up with crap and you should empty it occasionally into the garbage. I usually empty it right before I vacuum.
 - Eat and drink whatever you want that is edible and/or potable (not the cleaning supplies under the kitchen sink).
 
+Environmental Control
+=====================
+- Heat/AC controls are programmable and the controller is just outside the bathroom door. It's customized for my work schedule, which means it may be too hot or too cold during the work day if you're at home. Feel free to change the program but, if you do, please put a note on the controller (post-its are in the big drawer in the kitchen island) so I'll know to change it back. 
+- You have to manually switch it from 'heat' to 'cool' if you want to turn on the AC.
 
 Other notes
 ===========
