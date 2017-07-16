@@ -18,7 +18,8 @@ Cats
 Food
 ----
 - Dry food: In a dispenser with a timer. Just make sure there's food in the hopper. Extra bag of food is on top of the refrigerator.
-- Wet food: Each morning, throw away any food left in the dish from the day before and put a fresh can of food in there. Nudgel doesn't eat the wet food so don't be alarmed if you don't see him near this dish. Cans of wet food on the windowsill to the left of the sink.
+- Wet food: Each morning, throw away any food left in the dish from the day before and put a fresh can of food in there. Nudgel doesn't eat the wet food so don't be alarmed if you don't see him near this dish. Cans of wet food on the windowsill to the left of the sink. 
+- With Bella in the picture, the cats' bowl of wet food has to be somewhere the dog won't go so I've put it in the front windowsill, near their water dishes.
 
 Water
 -----
@@ -39,7 +40,6 @@ Leaving them for more than a day
 Supplies
 ========
 - Toilet paper in the cabinet under the bathroom sink. Additional rolls in the bedroom closet, all the way to the left side.
-- Paper towels in the storage room downstairs.
 - Kitchen garbage bags in the cabinet under the kitchen sink.
 - Bathroom garbage bags (aka plastic bags from various stores) in the bottom drawer to the left of the refrigerator.
 - Cleaning supplies (not that you're required to clean!) under the kitchen sink. 
@@ -57,3 +57,4 @@ Other notes
 - Recycling: There's a recycling dumpster out in the alley. I don't have a bin in the condo, have been using brown paper bags which I keep on the right side of the refrigerator.
 - Garbage: Dumpster out in the alley. Go out the back door to the deck - if you're coming back in, there's a brick just inside the gate to prop it open. Please don't prop it open for longer than it takes to go to the dumpster and make sure the gate closes when you come back!
 - Grocery stores: Mariano's on Lawrence at Ravenswood (approx 1 mile away, reachable by #81 bus on Lawrence). Jewel on Lincoln just south of Montrose (approx 0.7 miles away, somewhat reachable by #11 bus on Lincoln but that bus has a weird schedule so check online)
+- Laundry: Washers and dryers are in the basement, the door to which is in the front entryway by the mailboxes. Detergent & dryer sheets are inside the door to my condo and the keys to the basement are in the box with the dryer sheets. The gold key opens the basement door, silver key is for my condo and the one that has traces of other colors opens the front door.
