@@ -29,7 +29,7 @@ Cleanup
 -------
 - In the left side of the cabinet under the bathroom sink, there's a box of cat litter with a sifter/shovel on top of it and a roll of cleanup bags (blue) next to it. 
 - Each morning, sift through the treasures in the litter box and put them in the cleanup bags. Tie off the top of the bag and take it to the dumpster in the back alley (if you don't take it outside within a few hours, you'll definitely regret it as the aroma permeates the place)
-- As I write this, the cat litter is in front of the closet door, basically in the kitchen, because someone is staying in my guest room. When there is no guest, that's the cats' room and the litter box goes just to the left of the door there. That reduces (a little) the amount of cat sand they track throughout the rest of the place. So feel free to move it into the guest room if it isn't there already.
+- As I write this, the litter box is in front of the closet door, basically in the kitchen, because someone is staying in my guest room. When there is no guest, that's the cats' room and the litter box goes just to the left of the door there. That reduces (a little) the amount of cat sand they track throughout the rest of the place. So feel free to move it into the guest room if it isn't there already.
 
 
 Leaving them for more than a day
